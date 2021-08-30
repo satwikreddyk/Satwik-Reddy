@@ -1,2 +1,2 @@
-# UppathiSuresh.github.io
-Suresh Profile
+# SatwikReddy.github.io
+Satwik Profile
